@@ -1,3 +1,2 @@
 - 👋 @FunkyPham
 - 👀 Moderator of Altris Network
-- 📫 My social media
